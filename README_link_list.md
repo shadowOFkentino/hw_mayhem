@@ -1,0 +1,9 @@
+bifucation risers 
+https://www.ebay.com/itm/116258830215?_nkw=pcie+bifucation+pcie4&itmmeta=01J58YS8G785X0MK6D8QG8K6B1&hash=item1b1190f787:g:vcwAAOSwQY5mmlQ1&itmprp=enc%3AAQAJAAAA8HoV3kP08IDx%2BKZ9MfhVJKkRIlu2zfD1qCbjLjVPFvLYcLaeEO2X91gYMO0aY8DOSWymx4o7Kc83n1e3zfXhL7KmFZzyxrXoMIDTgIL3DCn5R8qM2ymkM5MM%2Fd1GQ1xtwihYr9fODudis%2Bd6uXjyOrlyIhkPkfw3iUS9hwG3DWBNXf9IgPlBAMdiHFeBmnceCuvUwxC1GkI08hzGg7uhgtDz2L08uN4jAMWsTRAbw2tIPj0EPKeP%2FfOWBY4E6HzCIi4TOCfc7JP1TUrSeoUjOF1fsqS0gIYyfIItbG5foFiU4y4crgdXuTXB1vVKJnJuqQ%3D%3D%7Ctkp%3ABFBMmojlnqpk
+
+rysers 
+
+--
+
+
+add notes 
